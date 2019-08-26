@@ -1,1 +1,1 @@
-# Synergy-Softwares
+# Synergy Softwares
